@@ -11,7 +11,7 @@
 **Stato:** 🟡 In sviluppo.
 
 ## 📁 Progetto Completo
-[Qui](https://uniroma3-my.sharepoint.com/my?id=%2Fpersonal%2Ffed%5Fcerilli%5Fstud%5Funiroma3%5Fit%2FDocuments%2FComputer%20Graphics%26viewid=6a69d11a%2D7b79%2D4c95%2D96c9%2D1b48677d4e75%26ga=1)
+[Qui](https://uniroma3-my.sharepoint.com/:f:/r/personal/fed_cerilli_stud_uniroma3_it/Documents/Computer%20Graphics?d=wd8a0f2eca3804f378e33327db7cb5c5e&csf=1&web=1&e=Vs1JJd)
 
 ## 📖 Descrizione
 
